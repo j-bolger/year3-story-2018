@@ -5,3 +5,5 @@ Chapter 1: Tall Tilted Towers
 Chapter 2: Two WTF Uncles Laughing to the Beat
 
     A drama storm thickens at Vidcon. Will Keemstar get his news?
+
+Chapter 3: The Green Car
